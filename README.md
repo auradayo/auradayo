@@ -6,7 +6,7 @@
 - w2i, might not see your response when im offtb! <img width="20" height="20" alt="ed84bf00" src="https://github.com/user-attachments/assets/ee50ce40-38fa-43e4-9305-ddaf5cbc1240" /> ;‎ *(sleep inactivity is on!)*
 - and last of all, c+h freely! ; *do not copy :((*
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="592" height="32" alt="67278963" src="https://github.com/user-attachments/assets/3c01c090-7c64-46c3-8831-93cbec72c24f" />
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="592" height="32" alt="67278963" src="https://github.com/user-attachments/assets/3c01c090-7c64-46c3-8831-93cbec72c24f" />
 
 ‎<img width="200" height="200" alt="ffc24f5e2f5334787b564f16f7660f8d" src="https://github.com/user-attachments/assets/55385195-cf38-45d5-9e4f-0d8bd63b81c2"/>
 
